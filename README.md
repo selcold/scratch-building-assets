@@ -1,0 +1,1 @@
+# scratch-building-assets
